@@ -1,5 +1,5 @@
-# Hello!
-## Elizabeth Philip
+# Introduction
+## Hello!
 
 Hello, my name is Elizabeth Philip! I enjoy bringing creativity and an artistic perspective to my work, especially when creating visually appealing content that captures attention and makes an impact.
 
